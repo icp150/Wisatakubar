@@ -1,0 +1,2 @@
+# Wisatakubar
+kabupaten kutai barat
